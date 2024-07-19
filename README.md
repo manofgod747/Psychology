@@ -21,7 +21,7 @@ Psychopathy is split mind
 
 The mind splits when the body is violated
 
-The split contains the patterb of violation
+The split contains the pattern of violation
 
 The brain propagates the split until the violation is seen
 
