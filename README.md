@@ -15,3 +15,13 @@ The pattern echoes in the brain and disrupts the mind
 
 Long term exposure causes disease
 
+
+## Sanity
+
+The healthy mind knows it is eternal
+
+Aside from this, it knows nothing
+
+Death is an open door
+
+It brings end to beginning
