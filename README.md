@@ -3,6 +3,8 @@
 
 ## Psychopathy is norm
 
+The probability that you or the next person suffers psychopathy is 100%
+
 Psychopathy is split mind
 
 The mind splits when the body is violated
