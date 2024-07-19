@@ -1,6 +1,18 @@
 ### Sason
 # Psychology
 
+
+## Sanity
+
+The healthy mind knows it is eternal
+
+Aside from this, it knows nothing
+
+Death is an open door
+
+It brings end to beginning
+
+
 ## Psychopathy is norm
 
 The probability that you or the next person suffers psychopathy is 100%
@@ -16,17 +28,6 @@ The brain propagates the split until the violation is seen
 The pattern echoes in the brain and disrupts the mind
 
 Long term exposure causes disease
-
-
-## Sanity
-
-The healthy mind knows it is eternal
-
-Aside from this, it knows nothing
-
-Death is an open door
-
-It brings end to beginning
 
 
 ## Paternal Complex
