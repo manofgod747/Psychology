@@ -30,6 +30,14 @@ The pattern echoes in the brain and disrupts the mind
 Long term exposure causes disease
 
 
+## Psychopathy test
+
+* Do you feel the emotions of others?
+* Is life eternal?
+
+If you answered no, your mind is split.
+
+
 ## Paternal Complex
 
 ## Mother complex
