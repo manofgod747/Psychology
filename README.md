@@ -38,9 +38,9 @@ Cannabis (Marijuana) is a plant that has various mental and emotional effects on
 Cannabis causes raised emotional awareness. During the effects, the subject is in a condition to better respond to therapeutic efforts. The dose must be determined on an individual basis. Ideally, the dose is low enough to keep the subject emotionally stable and safe.  
 
 ## Dealing with Psychosis and Anxiety
-When a patient reaches a state of insight of traumatic events, psychotic symptoms and anxiety increase. At this point cannabis is used to further raise emotional awareness. The subject can clearly feel anxious pains in various bodyparts. 
+When a patient reaches a state of insight of traumatic events, psychotic symptoms and anxiety increase. At this point cannabis is used to further raise emotional awareness. The subject can then clearly feel anxious pains in various bodyparts. 
 
-The subject uses the anxious pains as a guide to increase muscle tension in those areas. The tensions leads to the physical position of a traumatic event. While the subject adjusts into position, the tension focuses the anxiety and takes control of it. If the subject relaxes, the anxiety spreads and feels overwhelming. The subject then stays in the tensed up position and meditates on the emotion. Eventually, the memory is integrated into the psyche and the patient is relieved from the psychotic and anxious symptoms.    
+The subject uses the anxious pains as a guide to increase muscle tension in those areas. The tensions leads to the physical position of the traumatic event. While the subject adjusts into position, the tension focuses the anxiety and takes control of it. If the subject relaxes, the anxiety spreads and feels overwhelming. The subject then stays in the tensed up position and meditates on the emotion. Eventually, the memory is integrated into the psyche and the patient is relieved from the psychotic and anxious symptoms.
 
 The process is repeated until all memories have been integrated. After completed therapy, the patient has a rich and beautiful emotional life, much like children. 
 
