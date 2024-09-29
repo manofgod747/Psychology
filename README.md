@@ -32,8 +32,6 @@ A transmission of a car is used to select verbs and nouns. A transmission uses f
 #### Random Sentence
 Move the force and hug forward with teeth but faster
 
-[1] Psychodiagnostik 1921, Hermann Rorschach
-
 ## Cannabis Therapy
 Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from psychotic and disturbing to enjoyable and satisfying. Disturbing effects are observed in patients with some degree of psychopathy. Higher degrees of psychopathy results in a higher likelyhood of paranoid delusions and disturbing emotions while under the effect of the substance.
 
@@ -46,3 +44,7 @@ The subject uses the anxious pains as a guide to increase muscle tension in thos
 
 The process is repeated until all memories have been integrated. After completed therapy, the patient has a rich and beautiful emotional life, much like children. 
 
+
+
+[1] Psychodiagnostik, 1921, Hermann Rorschach
+[2] Epigenetics, 2007, David Allis, Thomas Jenuwein, Danny Reinberg
