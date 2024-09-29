@@ -47,4 +47,5 @@ The process is repeated until all memories have been integrated. After completed
 
 
 [1] Psychodiagnostik, 1921, Hermann Rorschach
+
 [2] Epigenetics, 2007, David Allis, Thomas Jenuwein, Danny Reinberg
