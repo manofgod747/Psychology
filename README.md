@@ -19,6 +19,9 @@ Idolization is prevalent among most adults. It hinders the mind from seeing the 
 
 Isolation is necessary to rehabilitate from idolatry. The main focus of isolation is usually parents, relatives and friends. These relationships usually have the strongest emotional impact. Entertainment, material wealth, and other mental distractions are all images of idolization. Isolation is neccessary to avoid unconscious manipulation and deception. Progression in rehabilitation requires isolation from habits. Regression is more likely when one is subjected to old habits.
 
+### Symbolic Thinking
+...
+
 ### Linguistic Psychodiagnostic
 
 Lingustic psychogiagnostic is a method to diagnose psychological vulnerabilities in a subject. The subject is presented with a random sentence. The sentence can be created using any method of random word selection. Nouns, verbs and adjectives are selected at random and connected using prepositions and conjunctions.
