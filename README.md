@@ -8,7 +8,18 @@ Visual and auditory hallucinations, false reality judgement, neurotic tics, tour
 
 The traumas may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence or to repeat the pattern of trauma. The gentic factor is explained by epigenetics [2].
 
-## Linguistic Psychodiagnostic
+## Psychoanalysis
+
+### Isolation
+Isolation is an important step in rehabilitating the mind into a corrected state of reality judgement. Reality is the world experienced by the senses. There are no objective rules in life other than the limits afforded by the body and nature. In order to come into an objective reality judgement, one needs to deal with matters if idolization.
+
+Idolization is the belief that there are any other rules in life than what is afforded by body and nature. Examples of such rules is the belief in the authority of the state and state employees. Belief in parental advice. Belief in religious doctrine. Belief in group identities. 
+
+Idolization is prevalent among most adults. It hinders the mind from seeing the world clearly and fairly. Those who are obsessed by idolization tend to place utmost importance on institutional thinking. This kind of thinking suspends individual judgement of moral values in favor of majority rule.
+
+Isolation is necessary to rehabilitate from idolatry. The main focus of isolation is usually parents, relatives and friends. These relationships usually have the strongest emotional impact. Entertainment, material wealth, and other mental distractions are all images of idolization. Isolation is neccessary to avoid unconscious manipulation and deception. Progression in rehabilitation requires isolation from habits. Regression is more likely when one is subjected to old habits.
+
+### Linguistic Psychodiagnostic
 
 Lingustic psychogiagnostic is a method to diagnose psychological vulnerabilities in a subject. The subject is presented with a random sentence. The sentence can be created using any method of random word selection. Nouns, verbs and adjectives are selected at random and connected using prepositions and conjunctions.
 
