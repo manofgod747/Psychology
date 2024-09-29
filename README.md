@@ -22,6 +22,9 @@ Isolation is necessary to rehabilitate from idolatry. The main focus of isolatio
 ### Symbolic Thinking
 ...
 
+### Facing Fears - Cognitive Behavioural Therapy (CBT)
+CBT is academic slang (jargon) for facing your fears. A matter complicated by scientific illiteracy. Facing fears is one step in our psychological development. Fears persist after trauma recovery. It is important for individuals to face their fears in their own desired pace. It is important to cultivate a healthy relationship to facing fears. A helpful mental frame is to be as slow as possible. To take it easy. As time goes by, the rate of expansion increases willingly. There is no rush. There is no need to obsess about doing anything. Doing nothing is as valid a strategy as any. 
+
 ### Linguistic Psychodiagnostic
 
 Lingustic psychogiagnostic is a method to diagnose psychological vulnerabilities in a subject. The subject is presented with a random sentence. The sentence can be created using any method of random word selection. Nouns, verbs and adjectives are selected at random and connected using prepositions and conjunctions.
