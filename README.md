@@ -14,7 +14,7 @@ For this reason it is important that the patient knows that results of the test 
 ### Example - Cog World
 A transmission of a car is used to select verbs and nouns.
 
-A transmission uses force to move cogs. The cogs have teeth. The cogs can move faster or slower, forward or backward. The teeth of the cogs hug while they move. 
+A transmission uses force to move cogs. The cogs have teeth. Cogs can move faster or slower, forward or backward. The teeth of the cogs hug while they move. 
 
 #### Words
 Faster
