@@ -44,5 +44,5 @@ When a patient reaches a state of insight of traumatic events, psychotic symptom
 
 The subject uses the anxious pains as a guide to increase muscle tension in those areas. The tensions leads to the physical position of a traumatic event. While the subject adjusts into position, the tension focuses the anxiety and takes control of it. If the subject relaxes, the anxiety spreads and feels overwhelming. The subject then stays in the tensed up position and meditates on the emotion. Eventually, the memory is integrated into the psyche and the patient is relieved from the psychotic and anxious symptoms.    
 
-The process is repeated until all memories have been integrated. Afterwards completed therapy, the patient has a rich and beautiful emotional life, much like children. 
+The process is repeated until all memories have been integrated. After completed therapy, the patient has a rich and beautiful emotional life, much like children. 
 
