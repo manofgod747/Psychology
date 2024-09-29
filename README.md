@@ -2,11 +2,11 @@
 # Psychology
 
 ## Psychopathy
-Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss. The degree of psychopathy is the amount and severeness of the traumatic events. All psychiatric diagnosis are explained by this definition of psychopathy. 
+Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss. The degree of psychopathy is the amount and severeness of traumatic events.
 
 Visual and auditory hallucinations, false reality judgement, neurotic tics, tourettes syndrome, ADHD, Epilepsi, Autism, and in general, all psychological disturbances can be explained as a combination of traumatic events. The diagnosis depends on the kind and severity of traumas. The root diagnosis is memory loss leading to empathic deficiency. 
 
-The traumas may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence. The gentic factor is explained by epigenetics [2].
+The traumas may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence or to repeat the pattern of trauma. The gentic factor is explained by epigenetics [2].
 
 ## Linguistic Psychodiagnostic
 
