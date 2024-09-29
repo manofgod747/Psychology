@@ -15,12 +15,12 @@ For this reason it is important that the patient knows that results of the test 
 A transmission of a car is used to select verbs and nouns. A transmission uses force to move cogs. The cogs have teeth. Cogs can move faster or slower, forward or backward. The teeth of the cogs hug while they move. 
 
 #### Words
-Faster
-Force
-Forward 
-Hug
-Move
-Teeth
+* Faster
+* Force
+* Forward 
+* Hug
+* Move
+* Teeth
 
 #### Random Sentence
 Move the force and hug forward with teeth but faster
