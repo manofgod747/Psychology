@@ -28,7 +28,9 @@ CBT is academic slang (jargon) for facing your fears. A matter complicated by sc
 ### Living As You Please - Freedom
 When we are subjected to trauma and societal indoctrination, we tend to live as others please instead of how we want to live our own lifes. Matters of marriage, family and work are aspects of human life that are mostly illusory. To brake free from this bondage, one needs to affirm to oneself to live as one pleases. 
 
-I Live as I please. I decide how I live my life. Not my parents, not my spouse, not anyone, but ME. Others do not decide how I relate to other people. Others do not decide who I have sexual relationships with. I take responsibility for my life and I live as I please. 
+I Live as I please. I decide how I live my life. Not my parents, not my spouse, not my religious group, not anyone, but ME. Others do not decide how I relate to other people. Others do not decide who I have sexual relationships with. I take responsibility for my life and I live as I please. 
+
+If this is not the case, your are idolizing. 
 
 ### Linguistic Psychodiagnostic
 
