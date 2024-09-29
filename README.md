@@ -49,7 +49,7 @@ Move the force and hug forward with teeth but faster
 ## Cannabis Therapy
 Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from psychotic and disturbing to enjoyable and satisfying. Disturbing effects are observed in patients with some degree of psychopathy. Higher degrees of psychopathy results in a higher likelyhood of paranoid delusions and disturbing emotions while under the effect of the substance.
 
-Cannabis causes raised emotional awareness. During the effects, the subject is in a condition to better respond to therapeutic efforts. The dose must be determined on an individual basis. Ideally, the dose is low enough to keep the subject emotionally stable and safe, and high enough to reach the desired effect. 
+Cannabis causes raised emotional awareness. During the effects, the subject is in a condition to better respond to therapeutic efforts. The dose must be determined on an individual basis. Ideally, the dose is low enough to keep the subject emotionally stable and safe, while being high enough to reach the desired effect. 
 
 ### Dealing with Psychosis and Anxiety
 When a patient reaches a state of insight of traumatic events, psychotic symptoms and anxiety increase. At this point cannabis is used to further raise emotional awareness. The subject can then clearly feel anxious pains in various bodyparts. 
