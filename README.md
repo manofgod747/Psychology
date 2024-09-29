@@ -2,9 +2,11 @@
 # Psychology
 
 ## Psychopathy
-Psychopathy is hereby defined as a traumatic event that leads to memory loss of the event. The degree of psychopathy is defined as the amount and severeness of traumatic events. Most of these even take place during childhood. All psychiatric diagnosis are explained by this definition of psychopathy.
+Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss. The degree of psychopathy is the amount and severeness of the traumatic events. All psychiatric diagnosis are explained by this definition of psychopathy. 
 
-Visual and auditory hallucinations, false reality judgement, neurotic tics, tourettes syndrome, ADHD, Epilepsi, Autism, and in general, all psychic disturbances can be explained by a combination of traumatic events. The diagnosis depends on the kind of traumas. The root diagnosis is memory loss leading to empathic deficiency. 
+Visual and auditory hallucinations, false reality judgement, neurotic tics, tourettes syndrome, ADHD, Epilepsi, Autism, and in general, all psychic disturbances can be explained as a combination of traumatic events. The diagnosis depends on the kind of traumas. The root diagnosis is memory loss leading to empathic deficiency. 
+
+The traumas may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence. The gentic factor is explained by epigenetics.
 
 ## Linguistic Psychodiagnostic
 
@@ -33,7 +35,9 @@ Move the force and hug forward with teeth but faster
 [1] Psychodiagnostik 1921, Hermann Rorschach
 
 ## Cannabis Therapy
-Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from highly psychotic and disturbing to highly enjoyable and satisfying. The psychotic effects are observed in subjects with some degree of psychopathy.
+Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from psychotic and disturbing to enjoyable and satisfying. Disturbing effects are observed in patient with some degree of psychopathy. A higher degree of psychopathy results in a higher likelyhood of paranoid delusions and disturbing emotions while under the effect of the substance.
+
+Cannabis causes raised emotional awareness. During the effects, the subject is in a condition to better respond to therapeutic efforts because of raised emotional awareness. The dose must be determined on an individual basis. Ideally the dose is low enough to keep the subject emotionally safe.  
 
 ## Dealing with Psychosis and Anxiety
 
