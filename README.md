@@ -37,7 +37,7 @@ If this is not the case, your are idolizing.
 
 Lingustic psychogiagnostic is a method to diagnose psychological vulnerabilities in a subject. The subject is presented with a random sentence. The sentence can be created using any method of random word selection. Nouns, verbs and adjectives are selected at random and connected using prepositions and conjunctions.
 
-The subject is presented with a random sentence. Ideally, the sentence is presented in the subjects mother tounge together with visual queues to enchance the effect. The visual queue could be a Rorschach test [1] or any image that can have a triggering effect on the subject. Images of nationality and other group identities are reasonable strategies to test. In short, images that the subject has a relation to. Photos, arts etc...
+The subject is presented with a random sentence. Ideally, the sentence is presented in the subjects mother tounge together with visual queues to enchance the effect. The visual queue could be a Rorschach test [3] or any image that can have a triggering effect on the subject. Images of nationality and other group identities are reasonable strategies to test. In short, images that the subject has a relation to. Photos, arts etc...
 
 Upon presenting the image and text, the patients emotional queues, body language and neurotic tendencies are observed. The patient can also be asked to explain the meaning of the sentence. The trial leader asks the patient to freely and openly share their thougts without censoring themselves. 
 
@@ -57,6 +57,8 @@ A transmission of a car is used to select verbs and nouns. A transmission uses f
 #### Random Sentence
 Move the force and hug forward with teeth but faster
 
+## Dream Interpretation
+
 ## Cannabis Therapy
 Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from psychotic and disturbing to enjoyable and satisfying. Disturbing effects are observed in patients with some degree of psychopathy. Higher degrees of psychopathy results in a higher likelyhood of paranoid delusions and disturbing emotions while under the effect of the substance.
 
@@ -72,6 +74,6 @@ The process is repeated until all memories have been integrated. After completed
 
 [1] Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition, American Psychiatric Association
 
-[2] Psychodiagnostik, 1921, Hermann Rorschach
+[2] Epigenetics, 2007, David Allis, Thomas Jenuwein, Danny Reinberg
 
-[3] Epigenetics, 2007, David Allis, Thomas Jenuwein, Danny Reinberg
+[3] Psychodiagnostik, 1921, Hermann Rorschach
