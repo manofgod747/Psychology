@@ -11,9 +11,9 @@ Trauma may seem genetically hereditary, but the reality is that people tend to s
 All conditions are hereby treated as a form of psychopathy, with following illness. Many somatic diseases have psychopathological [4] causes.
 
 ## Why We Forget
-The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories but also the less flattering memories that would put one at odds with the paterns and others. From the parents perspective the child seems to forget which can seem like no harm is being done. In fact the harm is adding over time in the childs emotional life and defeaning his propspects of living a healthy life with reasonable boundary setting and pair boding.
+The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories, and also the less flattering memories that would put one at odds with the paterns and others. From the parents perspective the child seems to forget which can seem like no harm is being done. In fact the harm is adding over time in the childs emotional life and defeaning his propspects of living a healthy life with reasonable boundary setting and pair boding.
 
-If we were to remember life would be unbearable. The repression is a survival mechanism. A means to do the best out of the situation. When the child grows up and enters into a solitary life, it is prudent to deal with the past, in order for a future worthwhile.
+If we were to remember, life would be unbearable. The repression is a survival mechanism. A means to do the best out of the situation. When the child grows up and enters into a solitary life, it is prudent to deal with the past, in order to have a future worthwhile.
 
 ## Psychoanalysis
 
