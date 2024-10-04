@@ -6,9 +6,9 @@ Psychopathy is hereby defined as a person being subject to traumatic events that
 
 Visual and auditory hallucinations, false reality judgement, neurotic tics, tourettes syndrome, ADHD, OCD, Epilepsi, Autism, and in general, all psychological disturbances can be explained as a combination of traumatic events. The diagnosis depends on the kind and severity of traumas. The root diagnosis is memory loss leading to empathic deficiency, psychosis, schitzoferina and the multitude of descriptions found in the DSM-5 [1].
 
-The traumas may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence or to repeat the pattern of trauma. The gentic factor is explained by epigenetics [2].
+Trauma may seem genetically hereditary, but the reality is that people tend to subject their offspring to violence of a similar kind as they themselfes were subjected to. Trauma causes unawareness. The unawareness of the event causes strong tempations that urge a person into commiting acts of violence or to repeat the pattern of trauma. The gentic factor is explained by epigenetics [2].
 
-All conditions are hereby treated as a form of psychopathy, with following ailments.
+All conditions are hereby treated as a form of psychopathy, with following illness. Many somatic diseases have psychopathological [4] causes.
 
 ## Why We Forget
 The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories but also the less flattering memories that would put one at odds with the paterns and others. From the parents perspective the child seems to forget which can seem like no harm is being done. In fact the harm is adding over time in the childs emotional life and defeaning his propspects of living a healthy life with reasonable boundary setting and pair boding.
@@ -84,3 +84,5 @@ The process is repeated until all memories have been integrated. After completed
 [2] Epigenetics, 2007, David Allis, Thomas Jenuwein, Danny Reinberg
 
 [3] Psychodiagnostik, 1921, Hermann Rorschach
+
+[4] The Psychopathology of Everyday Life, 1901, Sigmund Freud
