@@ -15,7 +15,7 @@ The question wheter you have been subject to childhood trauma or not is impossib
 
 The childs behaviours becomes a manipulative survival mechanism. The manipulation is necessary to cope with family life. When the child enters into adolescence and adulthood, the survival mechanism becomes a deficiency instead of an asset. Peers will sooner or later tire of the manipulative behaviour and the deficinecy becomes clearer as life moves forward.
 
-As time passes by we become increasingly aware of our own deficiencies and are unable to get validation and find scapegoats for our own unsufficiencies. There is a rising pressure to deal with our faults. Dealing with our faults means dealing with the past injustices and coming to terms with human nature. The most prudent way forward is to forgive and seek reconciliation when it is possible. In some cases the past has to be let behind. Reconsiliation is not always possible.  
+As time passes by we become increasingly aware of our own deficiencies and are unable to get validation and find scapegoats for our own unsufficiencies. There is a rising pressure to deal with our faults. Dealing with our faults means dealing with the past injustices and coming to terms with human nature. The most prudent way forward is to forgive and seek reconciliation. In some cases the past has to be let behind. Reconsiliation is not always possible.  
 
 ## Psychoanalysis
 
