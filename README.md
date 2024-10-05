@@ -1,5 +1,6 @@
 ### Sason
 # Psychology
+Psychology is the scientific study of the human mind. In this treatise a theological world view is assumed and is crucial for understanding the human mind and body. The theological world view is that there is a soul that inhabits the body. The soul is independent from the body and the body can function independently of the soul. 
 
 ## Psychopathy
 Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss and various symptoms. The degree of psychopathy is the amount and severeness of traumatic events.
