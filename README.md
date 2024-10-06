@@ -4,19 +4,19 @@ Psychology is the scientific study of the human mind, body, and soul. In this tr
 
 ## Definitions
 ### The Soul (Spirit)
-The Soul is what is living. The body can function without a soul but is not alive in a theological sense. The Soul inhabits one or more bodies. The Soul is a being with a higher consciouness than living human beings.
+The Soul is what is living. The body can function without a soul but is not alive in a theological sense.
 
 ### The Body
 The body is used to denote the animal body with head, torso, arms and legs, or whatever form a body might take, be it a fish or a squirell or a human being. The word body can sometimes denote another type of body, like a body of water, or nature itself as the body of a planet. 
 
 ### The Mind
-The mind is the thinking aspect of being. Thoughts are part of the mind and also the brain. The brain and mind are not synonymous. The mind belongs to the soul. The brain belongs to the body. There are different planes of awareness in relation to the mind and brain.
+The mind is the thinking aspect of being. Thoughts are part of the mind and the brain. Mind and brain are not synonymous. The mind belongs to the soul. The brain belongs to the body. There are different planes of awareness in relation to the mind and the brain.
 
 ### The Brain
-The brain is the physical organ in the human head and many other animals. It is responsible for controlling the body in a feedback loop of sensory input to output. The brain stores all sense impressions from forming of the first neuron and forward. The storage and control capacities increase as the number of neurons increase. The brain is controlled by the soul by means of intention. The soul guides the brain and body. If no soul is present, the brain has enough patterns stored to repeat old patterns until a soul retakes the body.
+The brain is the physical organ in the human head and many other animals. It is responsible for controlling the body in a feedback loop of sensory input to output. The brain stores all sense impressions from forming of the first neuron and forward. The storage and control capacities increase as the number of neurons increase. The brain is controlled by the soul by means of intention. The soul guides the brain and body. If no soul is present, the brain repeats old patterns until a soul retakes the body.
 
 ### Trauma
-A trauma is an event that has a horrifying effect on the subject. Traumatic events are often repressed. The subject that experienced the trauma does not necessarily remember it. Such a trauma leaves behind symptoms of stress.
+A trauma is an event that has a horrifying effect on the subject. Traumatic events are often repressed. The subject that experienced the trauma does not necessarily remember it. Such a trauma leaves behind symptoms of stress. When a trauma occurs the subject tends to dissociate. This means that the soul temporarily leaves the body to cope with the stress.
 
 ### Psychopathy
 Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss and various symptoms. The degree of psychopathy is the amount and severeness of traumatic events.
