@@ -28,7 +28,7 @@ Trauma may seem genetically hereditary, but the reality is that people tend to s
 All conditions are hereby treated as a form of psychopathy, with following illness. Many somatic diseases have psychopathological [4] causes.
 
 ## Treatise
-### Why We Forget
+### Trauma
 The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories, and also the less flattering memories that would put one at odds with the parents and others. From the parents perspective, the child seems to forget which can seem like no harm is being done. In fact the harm is adding over time in the childs emotional life and defeaning his propspects of living a healthy life with reasonable boundary setting and pair boding.
 
 The childs behaviours becomes a manipulative survival mechanism. The manipulation is necessary to cope with family life. When the child enters into adolescence and adulthood, the survival mechanism becomes a deficiency instead of an asset. Peers will sooner or later tire of the manipulative behaviour and the deficinecy becomes clearer as life moves forward.
