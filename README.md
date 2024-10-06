@@ -15,8 +15,8 @@ The mind is the thinking aspect of being. Thoughts are part of the mind and also
 ### The Brain
 The brain is the physical organ in the human head and many other animals. It is responsible for controlling the body in a feedback loop of sensory input to output. The brain stores all sense impressions from forming of the first neuron and forward. The storage and control capacities increase as the number of neurons increase. The brain is controlled by the soul by means of intention. The soul guides the brain and body. If no soul is present, the brain has enough patterns stored to repeat old patterns until a soul retakes the body.
 
-### Mind Body & Soul
-Using this definition of life, the lens from which we see the human is vastly different from a physicalist world view. This is necessaary to lay out a theoretical framework in which psychology and most importantly psychopathology can be understood. Without a Soul psychopathology cannot be understood or reasonably classified.
+### Trauma
+A trauma is an event that has a horrifying effect on the subject. Traumatic events are often repressed. The subject that experienced the trauma does not necessarily remember it. Such a trauma leaves behind symptoms of stress.
 
 ### Psychopathy
 Psychopathy is hereby defined as a person being subject to traumatic events that leads to memory loss and various symptoms. The degree of psychopathy is the amount and severeness of traumatic events.
