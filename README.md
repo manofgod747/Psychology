@@ -29,11 +29,11 @@ All conditions are hereby treated as a form of psychopathy, with following illne
 
 ## Treatise
 ### Trauma
-The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories, and also the less flattering memories that would put one at odds with the parents and others. From the parents perspective, the child seems to forget which can seem like no harm is being done. In fact the harm is adding over time in the childs emotional life and defeaning his propspects of living a healthy life with reasonable boundary setting and pair boding.
+The question wheter you have been subject to childhood trauma or not is impossible to judge from memory alone. The child tends to repress the traumatic memories, and also the less flattering memories that would put one at odds with the parents and others. From the parents perspective, the child seems to forget, which can seem like no harm is being done. The harm is in fact adding over time which reflects in the childs emotional life. It is defeaning the subjects propspects of healthy living, reasonable boundary setting and pair boding.
 
-The childs behaviours becomes a manipulative survival mechanism. The manipulation is necessary to cope with family life. When the child enters into adolescence and adulthood, the survival mechanism becomes a deficiency instead of an asset. Peers will sooner or later tire of the manipulative behaviour and the deficinecy becomes clearer as life moves forward.
+The subjects behaviour becomes a manipulative survival mechanism that conforms to the environment. The manipulation is necessary to cope with life. When a child enters into adolescence and adulthood, the survival mechanism becomes a deficiency instead of an asset. Peers will sooner or later tire of the manipulative behaviour and the deficinecy becomes clearer as life moves forward.
 
-As time passes by we become increasingly aware of our own deficiencies and are unable to get validation and find scapegoats for our own unsufficiencies. There is a rising pressure to deal with our faults. Dealing with our faults means dealing with the past injustices and coming to terms with human nature. The most prudent way forward is to forgive and seek reconciliation. In some cases the past has to be let behind. Reconsiliation is not always possible.
+As time passes by we become increasingly aware of our own deficiencies and are unable to get validation or find scapegoats for our own unsufficiencies. There is a rising pressure to deal with our faults. Dealing with our faults means dealing with the past injustices and coming to terms with human nature. The most prudent way forward is to forgive and seek reconciliation. In some cases one has to let go of past relationships. Reconsiliation is not always possible.
 
 ### Basic Instincts
 #### Sexuality
