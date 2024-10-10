@@ -53,6 +53,43 @@ Idolization is prevalent among most adults. It hinders the mind from seeing the 
 
 Isolation is necessary to rehabilitate from idolatry. The main focus of isolation is usually parents, relatives and friends. These relationships usually have the strongest emotional impact. Entertainment, material wealth, and other mental distractions are all images of idolization. Isolation is neccessary to avoid unconscious manipulation and deception. Progression in rehabilitation requires isolation from habits. Regression is more likely when one is subjected to old habits.
 
+#### Projection
+A major factor that reveals psychopathology is projections. Projections is a way for the mind to deny its own faults by seeing the faults in others. If a person has an emotional judgement about another, the judgement is likely directed towards the unconscious self. It is evident in manipulation tactics when someone pretends to understand the thoughts and inner motivations of another. In most cases, these kinds of statements are unconscious projections.
+
+True discernment of anothers inner motivations are possible, but it required a deeper analysis based factual evidence. A good understanding of language and human expression is neccessary.
+
+To uncover your own unconscious ideas, it is necessary to put pride aside and be willing to accept your own insufficiencies. One method of development is to willingly project in writing, speech, or arts. An example of this is to write a text about people that we hate and try to flow in hatred. When we are done writing there is much to learn about ourselfes. The intentions and thoughs we put on others are likely our own.
+
+It is common to feel bad about having to realize our projections. A way to cope with the guilt is to remember that it is not your fault. Everything has an explanation. Everything has a cause. Being Loving and compassionate to one self can be difficult but a necessary skill to develop.
+
+Projections can also be good. People tend to see ones own flattering aspects in other people and not see it in the self. It is a good excercise to accept self flattery. Try to see the good you see in others in yourself. 
+
+Projection is the swiss army knife of psychology. Learn to tame it.
+
+#### Imagination
+Imagination is an effective tools too uncover inner desires and motivations. One can either imagine by conssciously enter into imagination, or let the mind create an imagination and observe it. 
+
+A technique is to be in a comfortable position and let the mind wander. Another technique is to hold and image in the mind and try not to imagine anything. Eventually the image animates itself and becomes like a movie in the mind. It is important to do these excercises in a pleasurable way. Make sure you have time, space‚ privacy and a neutral emotional state.
+
+Seeing the imagination is one aspect of the show. Analyzing its meaning is another. Some imaginations can also call for conscious action. Like a lucid dream. The dreamer has partial control of the show. 
+
+Imagination of this kind requires patiente and virtue. A childlike willingness to explore the inner without judgement.
+
+Whatever excerise you do, do it in your own time and pace. If you only can lie still for 10 seconds, that is sufficient. Do not make excessive demands on yourself. Respect your emotions. 
+
+#### Consider All Thoughts
+There are many kinds of thoughs to consider, ranging from wonderful to horrible. It can be difficult to consider thoughts in lack of virtue. In fear of self humiliation. Give yourself the approval you need to consider all and any thoughts. 
+
+#### Negations
+A way to uncover unconscious desires is to consider the things we say we don't want or need. When we use negations in speech, the thing being negated is not arbitrary. Of all the thing that are not, we choose some specific not.
+
+Example: I don't want to become a rockstar.
+
+This usually means you wan to be a rockstar, but you fear accepting the desire. The fear of failure keeps us not wanting things we actually want. 
+
+Be wary of your nots. Remove the not, and see how it sounds. 
+
+
 #### Symbolic Thinking
 ...
 
@@ -74,7 +111,7 @@ The subject is presented with a random sentence. Ideally, the sentence is presen
 
 Upon presenting the image and text, the patients emotional queues, body language and neurotic tendencies are observed. The patient can also be asked to explain the meaning of the sentence. The trial leader asks the patient to freely and openly share their thougts without censoring themselves. 
 
-It is important that the patient knows that results of the test does not lead to repercussions. If the subject is unaware, the uncounscious thoughts and emotions may be projected onto the trial leader. The subject could believe that the trial leader is responsible for his or her reactions. The projections can be used to estimate the contents of traumatic memories.
+It is important that the patient knows that the results of the test does not lead to repercussions. If the subject is unaware, the uncounscious thoughts and emotions may be projected onto the trial leader. The subject could believe that the trial leader is responsible for his or her reactions. The projections can be used to estimate the contents of traumatic memories.
 
 #### Example
 A transmission of a car is used to select verbs and nouns. A transmission uses force to move cogs. The cogs have teeth. Cogs can move faster or slower, forward or backward. The teeth of the cogs hug while they move. 
@@ -91,6 +128,11 @@ A transmission of a car is used to select verbs and nouns. A transmission uses f
 Move the force and hug forward with teeth but faster
 
 ### Dream Interpretation
+#### Compensation
+#### The Way Ahead
+#### Traumatic Memories
+#### Dream series
+...
 
 ### Cannabis Therapy
 Cannabis (Marijuana) is a plant that has various mental and emotional effects on subjects depending on the mental state of the subject. When inhaled or prepared as an edible, the effects can range from psychotic and disturbing to enjoyable and satisfying. Disturbing effects are observed in patients with some degree of psychopathy. Higher degrees of psychopathy results in a higher likelyhood of paranoid delusions and disturbing emotions while under the effect of the substance.
@@ -102,7 +144,7 @@ When a patient reaches a state of insight of traumatic events, psychotic symptom
 
 The subject uses the anxious pains as a guide to increase muscle tension in those areas. The tensions leads to the physical position of the traumatic event. While the subject adjusts into position, the tension focuses the anxiety and takes control of it. If the subject relaxes, the anxiety spreads and feels overwhelming. The subject then stays in the tensed up position and meditates on the emotion. Eventually, the memory is integrated into the psyche and the patient is relieved from the psychotic and anxious symptoms.
 
-The process is repeated until all memories have been integrated. After completed therapy, the patient has a rich and beautiful emotional life, much like children. 
+The process is repeated until all memories have been integrated. After completed therapy, the patient gains higher muscle control. It feels like being more centered and aware in the body.
 
 
 [1] Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition, American Psychiatric Association
@@ -113,9 +155,3 @@ The process is repeated until all memories have been integrated. After completed
 
 [4] The Psychopathology of Everyday Life, 1901, Sigmund Freud
 
-# Appendix
-
-## Physicalism
-Physicalism is the notion that the universe is physical and nothing but physical. This world view is regarded as incorrect in this treatise as it is impossible to explain logically. 
-
-For an in depth look at the arguments for the case against physicalism, read here: https://github.com/manofgod747/Philosophy
