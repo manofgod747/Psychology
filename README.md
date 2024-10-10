@@ -13,7 +13,7 @@ The body is used to denote the animal body with head, torso, arms and legs, or w
 The mind is the thinking aspect of being. Thoughts are part of the mind and the brain. Mind and brain are not synonymous. The mind belongs to the soul. The brain belongs to the body. There are different planes of awareness in relation to the mind and the brain.
 
 ### The Brain
-The brain is the physical organ in the human head and many other animals. It is responsible for controlling the body in a feedback loop of sensory input to output. The brain stores all sense impressions from forming of the first neuron and forward. The storage and control capacities increase as the number of neurons increase. The brain is controlled by the soul by means of intention. The soul guides the brain and body. If no soul is present, the brain repeats old patterns until a soul retakes the body.
+The brain is the physical organ in the human head and many other animals. It is responsible for controlling the body in a feedback loop of sensory input to output. The brain stores all sense impressions from forming of the first neuron and forward. The storage and control capacities increase as the number of neurons increase. The brain is controlled by the soul by means of intention. The soul guides the brain and body. If no soul is present, the brain repeats old patterns until a spirit retakes the body.
 
 ### Trauma
 A trauma is an event that has a horrifying effect on the subject. Traumatic events are often repressed. The subject that experienced the trauma does not necessarily remember it. Such a trauma leaves behind symptoms of stress. When a trauma occurs the subject tends to dissociate. This means that the soul temporarily leaves the body to cope with the stress.
